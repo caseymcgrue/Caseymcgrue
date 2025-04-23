@@ -1,1 +1,1 @@
-## Hi, I'm Casey, an IT PROFESSIONAL👋
+## Hi, I'm Casey, an IT Professional 👋
